@@ -1,1 +1,0 @@
-landenty.github.io/CreativePortfolio
